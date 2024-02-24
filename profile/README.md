@@ -1,4 +1,4 @@
-## ¡Hola! 👋
+## ¡HI! 👋
 
 Welcome to Ciclo - Transforming Your Financial Future
 
