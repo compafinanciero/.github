@@ -1,12 +1,12 @@
 ## ¡HI! 👋
 
-Welcome to Ciclo - Transforming Your Financial Future
+Welcome to Compa - Transforming Your Financial Future
 
-In Colombia, we challenge statistics and break free from the narrative that it takes up to eleven generations to overcome economic barriers. At Ciclo, we believe in the power of immediate action.
+In Colombia, we challenge statistics and break free from the narrative that it takes up to eleven generations to overcome economic barriers. At Compa, we believe in the power of immediate action.
 
-### 🚀 What is Ciclo?
+### 🚀 What is Compa?
 
-Ciclo is more than a company; it's a community committed to providing you with the tools and knowledge to accelerate your financial progress. From smart savings strategies to strategic investments, we're here to guide you every step of the way.
+Compa is more than a company; it's a community committed to providing you with the tools and knowledge to accelerate your financial progress. From smart savings strategies to strategic investments, we're here to guide you every step of the way.
 
 ### 🌐 Contribute
 
